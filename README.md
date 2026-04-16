@@ -1,4 +1,5 @@
-<p align="center"> <img width="35%" height="35%" alt="image" src="https://64.media.tumblr.com/c1af7a6f452d92dcf8b35507e061acee/d6b0508a1be50fdf-65/s1280x1920/b0a63fbf7f5219353f9d62c8fc0816d58ba129df.pnj" />
-<p align="center"> Love my gang!!
-<p align="center"> crds: Champagne-Coast
+<p align="center"> <img width="35%" height="35%" alt="image" src="https://64.media.tumblr.com/e7b1b322c2e169fc454e3df4f67a42a3/f70023a614267ba8-ab/s1280x1920/58caff0dd0e729956220b4da0ed3edd26d97e8c6.pnj" />
+<p align="center"> LOVE YOU YUELI!!
+<p align="center"> I really appreciate our drawings!
+<p align="center"> @bloodinthesnow
 <p align="center"> <a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=Sillies&color=58282a&labelColor=313030"/></a>
